@@ -1,2 +1,1 @@
-dora sucks
-kadae
+dctm7526
